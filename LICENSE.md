@@ -1,4 +1,4 @@
-# 
+# deribit trading bot quantitative Strategy | price-monitoring & scalping is the best deribit trading bot, featuring price-monitoring and scalping. Smart, fast, and optimized for
 
 
 
